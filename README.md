@@ -1,2 +1,0 @@
-# VPS3
-GRATIS3
